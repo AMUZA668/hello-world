@@ -7,6 +7,6 @@ Just a tutorial repository
 -Mind ?
 -No.
 -What's it?
--Nothig.
+-Nothing.
 -Oh,you are just wasting my time.I hate you. 
 -2333333333
